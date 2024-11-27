@@ -1,2 +1,2 @@
 # mylove
-for everyone that has a crush on 
+for everyone that has a crush on somebody
